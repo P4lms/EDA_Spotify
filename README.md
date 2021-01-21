@@ -8,3 +8,5 @@ Abaixo estão as minhas redes aonde você pode me encontrar:
 [LinkedIn](https://www.linkedin.com/in/mateus-lulio/)
 
 [Twitter](https://twitter.com/LulioMateus)
+
+[Medium](https://medium.com/@mateuslulio)
